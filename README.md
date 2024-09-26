@@ -1,2 +1,2 @@
 # pacmangameHORRORmaybe
- HELLO my firend want
+ HELLO my friend want
